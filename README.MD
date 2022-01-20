@@ -1,1 +1,1 @@
-### Hi there 👋, thanks for stopping by, my name is Lorenzo and I am a Software Developer
+### Hi there 👋, thanks for stopping by, my name is Naomi and I am a Software Developer
